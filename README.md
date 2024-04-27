@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ibragimhatab///////
+- 👋 Hi, I’m @ibragimhatab///
 - 👀 I’m interested in music
 Hello my friends !!!!!!
 
